@@ -1,2 +1,2 @@
 # H4LLUGans
-Gwe nub:v
+Asu mau ngapain:v
